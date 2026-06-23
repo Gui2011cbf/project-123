@@ -13,8 +13,8 @@ sendo criada em 1993, recebendo a sigla (TFI), mais especificamente no dia 29 de
 
 -A Fúria é Foda 
 
--Explode Coração 
+-explode o coração
 
--Meu Paraná, meu Tricolor
+-Brasil campeão!
 
 ![ghi](https://media.tenor.com/pO7mmLdC-BEAAAAd/kiss-gold-medal-neymar.gif)
