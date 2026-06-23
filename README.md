@@ -1,6 +1,6 @@
-# Torcida Furia Independente
+# A Ousadia de Neymar
 
-[Torcida Fúria Independente](https://www.youtube.com/watch?v=lsCuUQePUPI)
+[ A Ousadia de Neymar](https://www.youtube.com/watch?v=blo8hRU4knQ)
 
 _A Fúria Independente, é uma das grandes torcidas do estado do Paraná, pertencendo ao Parana clube, 
 sendo criada em 1993, recebendo a sigla (TFI), mais especificamente no dia 29 de setembro. A agremiação nasceu da união de duas antigas torcidas: a Fúria Tricolor e a Independente Paranista_
@@ -17,4 +17,4 @@ sendo criada em 1993, recebendo a sigla (TFI), mais especificamente no dia 29 de
 
 -Meu Paraná, meu Tricolor
 
-![TFI](https://media.tenor.com/_oxPrN2HZbsAAAAC/parana-parana-clube.gif)
+![ghi](https://media.tenor.com/pO7mmLdC-BEAAAAd/kiss-gold-medal-neymar.gif)
