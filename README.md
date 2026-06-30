@@ -11,7 +11,7 @@ Inspiração de milhões de brasileiros!
 
 -A torcida chama!
 
--explode o coração
+-explode o coração!
 
 -Brasil campeão!
 
