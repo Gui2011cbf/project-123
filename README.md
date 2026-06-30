@@ -9,9 +9,9 @@ sendo criada em 1993, recebendo a sigla (TFI), mais especificamente no dia 29 de
 
 -Por Você Torci a Vida Inteira
 
--Viemos do Inferno
+-
 
--A Fúria é Foda 
+-A torcida chama!
 
 -explode o coração
 
